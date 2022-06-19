@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zyarasa my site is https://www.ViRagraphix.com
+- 👋 Hi, I’m @Zyarasa my site is https://www.ViRaGraphix.xyz
 - 👀 I’m interested in ... Crytpo, gaming, and tech!
 - 🌱 I’m currently learning ... Google cert
 - 💞️ I’m looking to collaborate on ... a NFT project!
