@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Zyarasa my site is https://www.ViRaGraphix.xyz
-- 👀 I’m interested in ... Crytpo, gaming, and tech!
-- 🌱 I’m currently learning ... Google cert
-- 💞️ I’m looking to collaborate on ... a NFT project!
+- 👋 Hi, I’m Daniel Lee Herrin, a human from South West Florida
+- 👀 I’m interested in ... engineering!
+- 🌱 I’m currently learning ... alot ><
+- 💞️ I’m looking to collaborate on ...saving my community
 - 📫 How to reach me ... 239-220-2577 or zyrarasa2020@icloud.com
 
 <!---
